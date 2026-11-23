@@ -1,1 +1,1 @@
-# GOD-S-Throne
+# GODS-Throne
